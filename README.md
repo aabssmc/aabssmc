@@ -6,5 +6,3 @@ Join my discord [here](https://discord.gg/eYCR4AhYsE) to talk to me!
 
 
 ubd12 is me btw
-
-`19042024/14251597`
